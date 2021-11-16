@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mehran Haghighi Asl
+- 👀 I’m interested in coding and playing online games
+- 🌱 I’m currently learning ...
+- 🌹 This is my aparat channel if you like you can follow my channel :) = www.aparat.com/kgyti
